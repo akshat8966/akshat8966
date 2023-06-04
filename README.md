@@ -10,6 +10,7 @@
 - got shortlisted for 2
 - have 1 offer
 - anxious a little but looking forward
+- don't want to miss chance
 - ------------------------------------------------------
 A senior year Engineering student with intrigue and passion. Able to develop templates and strategies to increase productivity and improve the products. Those strategies can be recommendations for improvements to the current business. My interests in startups and products have fueled my passion for product management. Also I have a strong inclination towards finance, technology (FinTech) and analytics. I love to tell stories with data.
 
